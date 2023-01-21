@@ -1,6 +1,6 @@
 
 # 💫 About Me:
-I'm a full stack software engineer looking to work with a competent team of individuals who I can collaborate with and learn from. New technologies are being built everyday and I'm excited to being on the forefront of new technological innovation!
+I am a full stack software engineer looking to work with creative, innovative, and product driven teams. New technologies are developed everyday, and I am excited and looking forward to opportunities to be on the forefront of innovation with my next team.
 
 
 ## 🌐 Socials:
